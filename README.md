@@ -11,4 +11,4 @@
 - Cats
 
 Here are my socials: [Facebook](https://web.facebook.com/?_rdc=1&_rdr), [LinkedIn](https://www.linkedin.com/in/fares-khalil-02b1351a8/)
-Im not very active but i hope we will get along fine.
+Im not very active on social media but i hope we will get along just fine.
